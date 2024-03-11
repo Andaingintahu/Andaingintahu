@@ -2,8 +2,8 @@
 - 👀 I’m interested in coding and hacking phone 
 - 🌱 I’m currently learning tracking and hacking
 - 💞️ I’m looking to collaborate on my girls phone 
-- 📫 How to reach me 
-- 😄 Pronouns: ...
+- 📫 How to reach me from this app
+- 😄 Pronouns: i don't know 😭
 - ⚡ Fun fact: must study from zero 😭
 
 <!---
